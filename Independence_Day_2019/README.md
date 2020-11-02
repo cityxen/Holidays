@@ -1,3 +1,5 @@
+# 🌆🅲🅸🆃🆈🆇🅴🅽☯️ 8 & 16 bit hijinx and programming!
+
 # 1776
 
 This is the BASIC program for the Commodore 64 used in the 2019 4th of July special video

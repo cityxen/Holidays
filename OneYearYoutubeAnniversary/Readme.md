@@ -1,3 +1,5 @@
+# 🌆🅲🅸🆃🆈🆇🅴🅽☯️ 8 & 16 bit hijinx and programming!
+
 # One Year Youtube Anniversary Special
 
 See the video here: https://www.youtube.com/watch?v=i-W1nHz4eKY
